@@ -1,1 +1,4 @@
-# t-m-eski-botlar
+# BOT
+
+
+- KİMSENİN EMEĞİNE GRAM SAYGIM YOK!
